@@ -9,7 +9,7 @@ Haden Chambles
 Hands Gerwinkle
 Jann Ostrokra
 Juananan Ruitiña
-Koala Ojoodidn't
+Kola Ojoodide
 Laia Ruffunni
 Lidia Loona Puertchka
 Luybimor Popoff
@@ -18,6 +18,6 @@ Maxibillion Blazin’
 Migelle Divvoh
 Nina Rojc
 Peter Pogo-stick
-Piper Donk
+Peepor Donkovich
 Sofia Feldrin
 Time “waits for no one” Udvarhelyi
