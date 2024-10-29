@@ -22,9 +22,3 @@ fn main() {
         "Sofia Feldrin",
         "Time \"waits for no one\" Udvarhelyi"
     ];
-
-    println!("# Names\n");
-    for name in names {
-        println!("{}", name);
-    }
-}
