@@ -17,7 +17,7 @@ Mattee-ah Turick
 Maxibillion Blazin’
 Migelle Divvoh
 Niña Roorke
-Peter Pogo-stick
+Peter Pogo-stickit into somewhere
 Piper Donk
 Sofia Feldrin
 Time “waits for no one” Udvarhelyi
