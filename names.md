@@ -2,14 +2,14 @@
 
 Amy Pattanasethanon
 Anne-Sofie Elliot
-Daniel Mootis
+Daniella Moose
 Elaynne Liman
 George Lucas Serelis
 Haden Chambles
 Hands Gerwinkle
 Jann Ostrokra
 Juananan Ruitiña
-Koala Ojoodidn't
+Kola Ojoodide
 Laia Ruffunni
 Lidia Loona Puertchka
 Luybimor Popoff
@@ -18,6 +18,6 @@ Maxibillion Blazin’
 Migelle Divvoh
 Niña Roorke
 Peter Pogo-stick
-Piper Donk
+Peepor Donkovich
 Sofia Feldrin
 Time “waits for no one” Udvarhelyi
