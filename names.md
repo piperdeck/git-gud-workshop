@@ -3,7 +3,7 @@
 Amy Pattanasethanon
 Anne-Sofie Eliet
 Daniel Mootis
-Elaynne Liman
+Elaine Liman
 George Lucas Serelis
 Haden Chambles
 Hands Gerwinkle
