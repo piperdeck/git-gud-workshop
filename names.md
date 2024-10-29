@@ -1,7 +1,7 @@
 # Names
 
 Amy Pattanasethanon
-Anne-Sofie Eliet
+Anne-Sophie Eliet
 Daniel Mootis
 Elaynne Liman
 George Lucas Serelis
