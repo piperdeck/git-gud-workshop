@@ -1,8 +1,8 @@
 # Names
 
 Amy Pattanasethanon
-Anne-Sofie Elliot
-Daniella Moose
+Anne-Sofie Eliet
+Daniel Mootis
 Elaynne Liman
 George Lucas Serelis
 Haden Chambles
