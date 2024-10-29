@@ -15,7 +15,7 @@ Lidia Loona Puertchka
 Luybimor Popoff
 Mattee-ah Turick
 Maxibillion Blazin’
-Migelle Divvoh
+Miguel Divo
 Niña Roorke
 Peter Pogo-stick
 Piper Donk
