@@ -13,7 +13,7 @@ Koala Ojoodidn't
 Laia Ruffunni
 Lidia Loona Puertchka
 Luybimor Popoff
-Mattee-ah Turick
+Mattea Turic
 Maxibillion Blazin’
 Migelle Divvoh
 Niña Roorke
