@@ -16,7 +16,7 @@ Luybimor Popoff
 Mattee-ah Turick
 Maxibillion Blazin’
 Migelle Divvoh
-Niña Roorke
+Nina Rojc
 Peter Pogo-stick
 Piper Donk
 Sofia Feldrin
