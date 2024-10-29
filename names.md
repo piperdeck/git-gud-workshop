@@ -4,7 +4,7 @@ Amy Pattanasethanon
 Anne-Sofie Elliot
 Daniel Mootis
 Elaynne Liman
-George Lucas Serelis
+Lukas Šerelis
 Haden Chambles
 Hands Gerwinkle
 Jann Ostrokra
